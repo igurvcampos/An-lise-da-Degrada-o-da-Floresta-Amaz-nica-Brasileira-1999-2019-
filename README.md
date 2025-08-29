@@ -1,0 +1,1 @@
+# An-lise-da-Degrada-o-da-Floresta-Amaz-nica-Brasileira-1999-2019-
